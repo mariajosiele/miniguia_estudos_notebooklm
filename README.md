@@ -1,4 +1,4 @@
-resumo estruturado
+
 
 
 Thoughts
