@@ -1,4 +1,4 @@
-com base nas fontes, faça um resumo estruturado
+resumo estruturado
 
 
 Thoughts
